@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... something rusty and has weight
 - 📫 How to reach me: ... twitter.com/electronicnomad
 - 😄 Pronouns: ... hmmm
-- ⚡ Fun fact: ... I'm not a human
+- ⚡ Fun fact: ... I'm not a human being
