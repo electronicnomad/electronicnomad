@@ -2,7 +2,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ... surviing
+- 🔭 I’m currently working on ... surviving
 - 🌱 I’m currently learning ... how to survive
 - 👯 I’m looking to collaborate on ... wild things
 - 🤔 I’m looking for help with ... non human races
